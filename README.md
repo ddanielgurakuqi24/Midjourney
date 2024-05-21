@@ -1,4 +1,4 @@
-# 【2024年更新】可能是全网最有用的Midjourney基础教程
+# 【2024年更新】可能是全网最有用的Midjourney订阅教程
 
 ## 订阅Midjourney的方法
 
